@@ -86,3 +86,7 @@ alergeni, vizite în spitale etc.)
 
  ![image](https://github.com/user-attachments/assets/e1947dae-b17d-4844-92ee-47d631766d21)
 
+ ![image](https://github.com/user-attachments/assets/6137ce99-de67-4992-b3e3-92ad9cd96218)
+![image](https://github.com/user-attachments/assets/d7e099fc-0b0a-412b-affa-be055c251ffd)
+
+
